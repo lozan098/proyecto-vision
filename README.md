@@ -1,5 +1,5 @@
 # proyecto-vision
-![enter image description here](https://drive.google.com/open?id=15tnFLxZmc46h2ifQNLK4xI_DmzSixmvj)
+![enter image description here]https://drive.google.com/file/d/15tnFLxZmc46h2ifQNLK4xI_DmzSixmvj/view)
 
                                                 
 
